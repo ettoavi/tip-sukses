@@ -24,5 +24,3 @@ Mulailah memikirkan sesuatu yang Anda ingin pelajari, dan cari dokumentasinya. T
 
 ``Bisa Karena Terbiasa``
 ``Bisa Karena Dipaksa``
-
-Oleh : Syarif Hidayat (Ai Jogja) | *cah7x.jogja@gmail.com* 
